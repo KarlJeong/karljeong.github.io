@@ -1,1 +1,0 @@
-# karljeong.github.io
